@@ -1,4 +1,4 @@
-# Abortion-clinic-buffer-zones-YouGov-poll-MPs
+# Abortion clinic buffer zones poll
 More than half of MPs in the Midlands support "buffer zones" for abortion clinics:
 http://birminghameastside.com/2017/11/07/mps-support-buffer-zones-abortion-clinics/
 
